@@ -1,0 +1,2 @@
+# csgopastedtutorialfuckass
+OK PASTED
